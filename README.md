@@ -1,0 +1,1 @@
+# OST_EX_7_my-static-website
